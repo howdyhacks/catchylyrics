@@ -42,4 +42,4 @@ Vekh Ke Hasdi Lyrics : The All new Punjabi Romantic, Love Song from the Movie Ma
 
 Sohnea Lyrics : The all new beautiful Punjabi Romantic, Love Song Which is Sung by Miss Pooja & the Beautiful Music is Composed by Millind Gaba (MG) & the Wonderful Lyrics written by Happy Raikoti.
 
-## [Page 2](https://github.com/howdyhacks/catchylyrics-2)
+## [Page 2](https://howdyhacks.github.io/catchylyrics/page2)
