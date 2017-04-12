@@ -32,3 +32,7 @@ Khoon Khaulda Lyrics : The Lovely Punjabi Song which is Sung by John Bedi & the 
 
 Tutak Tutak Tutiya Lyrics : The Lovely Title Song from the Movie Tutak Tutak Tutiya in which Prabhudeva & Sonu Sood is Dancing with Tamanna which is Sung by Malkit Singh, Kanika Kapoor, & Sonu Sood & the Music for this Song is Composed by Raaj Ashoo & the Beautiful Lyrics written by Shabbir Ahmed & the Music Label for this Song is of T-Series.
 
+### [Vekh Ke Hasdi Lyrics – Ammy Virk | Manje Bistre](http://catchylyrics.net/2017/04/vekh-ke-hasdi-lyrics/)
+![Vekh Ke Hasdi Lyrics](http://catchylyrics.net/wp-content/uploads/2017/04/Vekh-Ke-Hasdi-Lyrics-768x384.jpg)
+
+Vekh Ke Hasdi Lyrics : The All new Punjabi Romantic, Love Song from the Movie Manje Bistre which is Sung by Ammy Virk & the Music is Composed by Jassi Katyal & the Beautiful Lyrics is written by Gurbinder Maan.
