@@ -11,3 +11,8 @@ The music is composed by Laxmikant-Pyarelal and the lyrics are written by Anand 
 ![Oka Pranam Lyrics](http://catchylyrics.net/wp-content/uploads/2017/04/Oka-Praanam-Lyric-768x384.jpg)
 
 Oka Pranam Lyrics: One of the lovely amazing telugu song lyrics from the upcoming movie Bahubali 2 The Conclusion. This song is sung by Kaala Bhairava and the music is composed and the lyrics are written by M.M. Keeravaani. The song are starring by Prabhas, Anushka, Rana & Tamannaah.
+
+### [Main Phir Bhi Tumko Chahunga Lyrics – Half Girlfriend – Arijit Singh](http://catchylyrics.net/2017/04/main-phir-bhi-tumko-chahunga-lyrics/)
+![Main Phir Bhi Tumko Chahunga Lyrics](http://catchylyrics.net/wp-content/uploads/2017/04/Main-Phir-Bhi-Tumko-Chahunga-Lyrics-768x384.jpg)
+
+Main Phir Bhi Tumko Chahunga Lyrics: One of the best latest amazing and heart touching romantic song lyrics from the upcoming movie Half Girlfriend. This song is sung by super singer Arijit Singh and the music is composed by Mithoon. The lyrics are written by Manoj Muntashir and label of music is Zee Music Company. The song starring by Shraddha Kapoor & Arjun Kapoor.
