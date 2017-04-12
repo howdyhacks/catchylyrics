@@ -16,3 +16,14 @@ Oka Pranam Lyrics: One of the lovely amazing telugu song lyrics from the upcomin
 ![Main Phir Bhi Tumko Chahunga Lyrics](http://catchylyrics.net/wp-content/uploads/2017/04/Main-Phir-Bhi-Tumko-Chahunga-Lyrics-768x384.jpg)
 
 Main Phir Bhi Tumko Chahunga Lyrics: One of the best latest amazing and heart touching romantic song lyrics from the upcoming movie Half Girlfriend. This song is sung by super singer Arijit Singh and the music is composed by Mithoon. The lyrics are written by Manoj Muntashir and label of music is Zee Music Company. The song starring by Shraddha Kapoor & Arjun Kapoor.
+
+### [Pyaar Manga Hai Lyrics – Armaan Malik | Neeti Mohan](http://catchylyrics.net/2017/04/pyaar-manga-hai-lyrics/)
+![Pyaar Manga Hai Lyrics](http://catchylyrics.net/wp-content/uploads/2017/04/PYAAR-MANGA-HAI-Lyrics-768x384.jpg)
+
+Pyaar Manga Hai Lyrics : The Lovely Romantic Song in which Zareen Khan is Romancing Ali Fazal & Making Love Scenes Which is Sung Beautifully by Armaan Malik, & Neeti Mohan & the Beautiful Heart Touching Music is Composed by Abhjit Vaghani & the Beautiful Loveable Lyrics is written by Manoj Muntashir.
+
+### [Khoon Khaulda Lyrics – John Bedi Punjabi Song](http://catchylyrics.net/2017/04/khoon-khaulda-lyrics/)
+![Khoon Khaulda Lyrics](http://catchylyrics.net/wp-content/uploads/2017/03/Khoon-Khaulda-Lyrics-768x384.jpg)
+
+Khoon Khaulda Lyrics : The Lovely Punjabi Song which is Sung by John Bedi & the Lovely Music for this Song is Composed by Soul Rockers & the Lyrics for this Song is Written by Bunty , & John Bedi himself.
+
