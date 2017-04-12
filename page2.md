@@ -24,4 +24,8 @@ The song are sung by Kishore Kumar, Asha Bhosle, Shailendra… [Read More..]
 Teri Khai Mangdi Lyrics; Pakistani musician Bilal Saeed’s Khair Mangdi.
 The song is sung and composed by Bilal and has lyrics by Bilal & Kumaar…. [Read More..]
 
+### [Mubarak Ho Tum Sabko Haj Ka Mahina Lyrics – Coolie (1983)](http://catchylyrics.net/2017/04/mubarak-ho-tum-sabko-haj-ka-mahina-lyrics-coolie-1983/)
+![Mubarak Ho Tum Sabko Haj Ka Mahina Lyrics](http://catchylyrics.net/wp-content/uploads/2017/03/mubarak-ho-haj-ka-mahina-768x384.jpg)
 
+Mubarak Ho Tum Sabko Haj Ka Mahina Lyrics : The Best Qawalli From the Movie
+Coolie (1983)in which Amitabh is trying is to go… [Read More..]
