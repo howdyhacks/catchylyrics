@@ -27,3 +27,8 @@ Pyaar Manga Hai Lyrics : The Lovely Romantic Song in which Zareen Khan is Romanc
 
 Khoon Khaulda Lyrics : The Lovely Punjabi Song which is Sung by John Bedi & the Lovely Music for this Song is Composed by Soul Rockers & the Lyrics for this Song is Written by Bunty , & John Bedi himself.
 
+### [Tutak Tutak Tutiya Lyrics – Title Song | Prabhudeva | Sonu Sood](http://catchylyrics.net/2017/04/tutak-tutak-tutiya-lyrics-title-song-prabhudeva-sonu-sood/)
+![Tutak Tutak Tutiya Lyrics](http://catchylyrics.net/wp-content/uploads/2017/04/Tutak-Tutak-Tutiya-Lyrics-768x384.jpg)
+
+Tutak Tutak Tutiya Lyrics : The Lovely Title Song from the Movie Tutak Tutak Tutiya in which Prabhudeva & Sonu Sood is Dancing with Tamanna which is Sung by Malkit Singh, Kanika Kapoor, & Sonu Sood & the Music for this Song is Composed by Raaj Ashoo & the Beautiful Lyrics written by Shabbir Ahmed & the Music Label for this Song is of T-Series.
+
