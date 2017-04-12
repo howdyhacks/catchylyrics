@@ -18,4 +18,10 @@ Love Song from the Movie Anari Which is Sung by the Very famous… [Read More..]
 Kisko Kahe Hum Apna lyrics; This is the most beautiful sad song for movie (Zamaana).
 The song are sung by Kishore Kumar, Asha Bhosle, Shailendra… [Read More..]
 
+### [Teri Khair Mangdi Lyrics – Baar Baar Dekho | Bilal Saeed](http://catchylyrics.net/2017/04/14550teri-khair-mangdi-lyrics/)
+![Teri Khair Mangdi Lyrics](http://catchylyrics.net/wp-content/uploads/2017/04/Teri-Khair-Mangdi-Lyrics-768x374.jpg)
+
+Teri Khai Mangdi Lyrics; Pakistani musician Bilal Saeed’s Khair Mangdi.
+The song is sung and composed by Bilal and has lyrics by Bilal & Kumaar…. [Read More..]
+
 
