@@ -41,3 +41,17 @@ Evil Returns the song is sung by Arijit Singhlike Aye Khuda… [Read More..]
 
 Tera Humsafar (SD-Dev) Lyrics : The Tera Humsafar Love & Romantic Song by the Golden Team
 of Safarnama which makes every lover fall in love… [Read More..]
+
+### [Teddy Bear Lyrics – Kanika Kapoor, Ikka | Gautam Gulati](http://catchylyrics.net/2017/04/teddy-bear-lyrics/)
+![Teddy Bear Lyrics](http://catchylyrics.net/wp-content/uploads/2017/04/Teddy-bear-Lyrics-768x384.jpg)
+
+Teddy Bear Lyrics : The Best Wedding Teddy Bear Love Song Which is Sung by Kanika Kapoor,
+Ikka Singh, & Suresh K Raheja & the… [Read More..]
+
+### [Move Your Lakk Lyrics – Noor | Badshah & Diljit Dosanjh FT. Sonakshi Sinha](http://catchylyrics.net/2017/04/move-your-lakk-lyrics/)
+![Move Your Lakk Lyrics](http://catchylyrics.net/wp-content/uploads/2017/04/Move-Your-Lakk-Lyrics-768x384.jpg)
+
+Move Your Lakk Lyrics : The Best Party Song of 2017 from the Movie Noor
+Which is Sung by Diljit Dosanjh, Badshah, & Sonakshi Sinha… [Read More..]
+
+## [Page-3]()
