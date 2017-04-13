@@ -29,3 +29,15 @@ The song is sung and composed by Bilal and has lyrics by Bilal & Kumaar…. [Rea
 
 Mubarak Ho Tum Sabko Haj Ka Mahina Lyrics : The Best Qawalli From the Movie
 Coolie (1983)in which Amitabh is trying is to go… [Read More..]
+
+### [AYE KHUDA / USKA HI BANA LYRICS – 1920 Evil Returns](http://catchylyrics.net/2017/04/14528uska-hi-bana-lyrics/)
+![AYE KHUDA / USKA HI BANA LYRICS](http://catchylyrics.net/wp-content/uploads/2017/04/USKA-HI-BANA-LYRICS-768x365.jpg)
+
+USKA HI BANA LYRICS; This best sad romantic song lyrics from movie 1920
+Evil Returns the song is sung by Arijit Singhlike Aye Khuda… [Read More..]
+
+### [Tera Humsafar (SD-Dev) Lyrics – Safarnama](http://catchylyrics.net/2017/04/tera-humsafar-sd-dev-lyrics/)
+![Tera Humsafar (SD-Dev) Lyrics](http://catchylyrics.net/wp-content/uploads/2017/04/humsafar_tera_humsafar_song_lyrics-768x384.jpg)
+
+Tera Humsafar (SD-Dev) Lyrics : The Tera Humsafar Love & Romantic Song by the Golden Team
+of Safarnama which makes every lover fall in love… [Read More..]
