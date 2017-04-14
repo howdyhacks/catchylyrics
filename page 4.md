@@ -35,3 +35,21 @@ This song is sung by Rihanna and it is… [Read More..]
 
 Love The Way You Lie Lyrics: One of the most famous and best song lyris from Vevo.
 This song is sung by Eminem and Rihanna… [Read More..]
+
+### [Diamonds Lyrics – Rihanna – Unapologetic](http://catchylyrics.net/2017/04/diamonds-lyrics-rihanna/)
+![Diamonds Lyrics](http://catchylyrics.net/wp-content/uploads/2017/03/Diamonds-Lyrics-768x384.jpg)
+
+Diamonds Lyrics: The best English song lyrics ever from the album of Unapologetic.
+This song is sung by Rihanna and it is got nominated for… [Read More..]
+
+### [International Love Lyrics – Pitbull Ft. Chris Brown](http://catchylyrics.net/2017/04/international-love-lyrics/)
+![International Love Lyrics](http://catchylyrics.net/wp-content/uploads/2017/03/International-Love-Lyrics-768x384.jpg)
+
+International Love Lyrics: The best lovely and amazing English song lyrics from the album Planet Pit.
+This song is sung by Pitbull and Chris Brown… [Read More..]
+
+### [Rain Over Me Lyrics – Pitbull ft. Marc Anthony – Planet Pit](http://catchylyrics.net/2017/04/rain-over-me-lyrics/)
+![Rain Over Me Lyrics](http://catchylyrics.net/wp-content/uploads/2017/03/Rain-Over-Me-Lyrics-768x384.jpg)
+
+Rain Over Me Lyrics: The awesome, fantastic song lyrics from the album Planet Pit.
+This song is sung by Pitbull and Marc Anthony. The song… [Read More..]
