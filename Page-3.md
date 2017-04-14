@@ -54,3 +54,8 @@ is written by Vinder Nathu Majra &… [Read More..]
 Sachin’s Cricket Wali Beat Lyrics: The best inspirational amazing Hindi Song lyrics
 that is sung by Sachin Tendulkar & Sonu Nigam. This song is Sachin… [Read More..]
 
+### [Mercy Lyrics – Badshah Feat. Lauren Gottlieb – ONE](http://catchylyrics.net/2017/04/mercy-lyrics-badshah/)
+![Mercy Lyrics](http://catchylyrics.net/wp-content/uploads/2017/04/Mercy-Lyrics-768x384.jpg)
+
+MERCY LYRICS: The one of the latest lovely RAP song which is a mix of Hindi,
+Punjabi & English language. The song is sung by… [Read More..]
