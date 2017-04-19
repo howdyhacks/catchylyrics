@@ -59,3 +59,9 @@ This song is sung by Pitbull and Marc Anthony. The song… [Read More..]
 
 Sugar Lyrics: An amazing famous catchy song lyrics that nominated for Grammy Award
 for Best Pop Duo/Group Performance & more.This song is sung by… [Read More..]
+
+### [Summer Lyrics – Calvin Harris – English Song](http://catchylyrics.net/2017/04/summer-lyrics-calvin-harris/)
+![Summer Lyrics](http://catchylyrics.net/wp-content/uploads/2017/03/summer-Lyrics-768x384.jpg)
+
+Summer Lyrics: One of the most popular English song ever that nominated for Brit Award for British Single & more.
+This song is sung by… [Read More..]
