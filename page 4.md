@@ -65,3 +65,9 @@ for Best Pop Duo/Group Performance & more.This song is sung by… [Read More..]
 
 Summer Lyrics: One of the most popular English song ever that nominated for Brit Award for British Single & more.
 This song is sung by… [Read More..]
+
+### [Uptown Funk Lyrics – Mark Ronson ft. Bruno Mars](http://catchylyrics.net/2017/04/uptown-funk-lyrics/)
+![http://catchylyrics.net/wp-content/uploads/2017/03/Uptown-Funk-Lyrics-768x384.jpg)
+
+Uptown Funk Lyrics: This is the best of Vevo song lyrics from the album Uptown Funk.
+The song is sung by Mark Ronson and Bruno… [Read More..]
