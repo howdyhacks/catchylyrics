@@ -46,4 +46,10 @@ in the album views and it is nominated for… [Read More..]
 ![We Found Love](http://catchylyrics.net/wp-content/uploads/2017/03/Rihanna-We-Found-Love-Lyrics.jpg)
 
 We Found Love Lyrics: The best English romantic song lyrics from the album Talk That Talk.
-This song is sung by Rihanna and Calvin Harris…. [Read More..]
+This song is sung by Rihanna and CalBad Romance Lyrics – Lady Gaga – The Fame Monstervin Harris…. [Read More..]
+
+### [Bad Romance Lyrics – Lady Gaga – The Fame Monster](http://catchylyrics.net/2017/03/bad-romance-lyrics/)
+![Bad Romance Lyrics](http://catchylyrics.net/wp-content/uploads/2017/03/Lady-Gaga-Bad-Romance-Lyrics.jpg)
+
+Bad Romance Lyrics: The one of the famous English song lyrics that got awards of MTV Video
+Music Award for Video of the Year &… [Read More..]
