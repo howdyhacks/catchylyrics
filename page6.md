@@ -42,4 +42,26 @@ from the movie Haan Maine Bhi Pyaar Kiya. The song… [Read More..]
 Mujhko lagta hai lyrics;One of the best beautiful sad song lyrics by Shivai.
 This song is called Tu Mere Mujhko lagta hai and also known… [Read More..]
 
+### [Dheere Dheere Bol Koi Sun Na Le Lyrics – Lata Mangeshkar & Mukesh](http://catchylyrics.net/2017/03/dheere-dheere-bol-lyrics/)
+![Dheere Dheere Bol](http://catchylyrics.net/wp-content/uploads/2017/03/dhere-dhere-bol.jpg)
 
+Dheere Dheere Bol Lyrics: The best old romantic song lyrics from the movie Gola Aur Kala (1972)
+which is sung by Lata Mangeshkar & Mukesh…. [Read More..]
+
+### [Ek Din Bik Jaayega Mati Ke Mol Lyrics – Dharam Karam – Mukesh](http://catchylyrics.net/2017/03/ek-din-bik-jaayega-mati-ke-mol-lyrics/)
+![Ek Din Bik Jaayega Mati Ke Mol](http://catchylyrics.net/wp-content/uploads/2017/03/ek-din-bik.jpg)
+
+Ek Din Bik Jaayega Mati Ke Mol Lyrics: The lovely factfull old song lyrics from the
+movie Dharam Karam (1975) which is sung by Mukesh…. [Read More..]
+
+### [Ishq Karoge To Dard Milega Lyrics – Kumar Sanu, Alka & Udit Narayan](http://catchylyrics.net/2017/03/ishq-karoge-to-dard-milega-lyrics/)
+![Ishq Karoge To Dard Milega](http://catchylyrics.net/wp-content/uploads/2017/03/Ishq-Karoge-To-Dard-Milega.jpg)
+
+Ishq Karoge To Dard Milega Lyrics: The awesome old sad song lyrics from the movie Ekka Raja Rani (1994)
+which is sung by super singers… [Read More..]
+
+### [Yaad Teri Aayegi Lyrics – Ek Jaan Hain Hum – Shabbir Kumar](http://catchylyrics.net/2017/03/yaad-teri-aayegi-lyrics/)
+![Yaad Teri Aayegi Lyrics](http://catchylyrics.net/wp-content/uploads/2017/03/Yaad-Teri-Aayegi-Lyrics.jpg)
+
+Yaad Teri Aayegi Lyrics: One of best old Sad Song lyrics from the movie Ek Jaan Hain Hum (1983)
+that is sung by Shabbir Kumar…. [Read More..]
