@@ -36,3 +36,10 @@ The lyrics of song written by Bilal. Music are… [Read More..]
 Wiggle Wiggle Lyrics; This english song sung by Jason Derulo feat. Snoop Dogg has been translated in 17 languages
 .The lyrics of song written by ERIC… [Read More..]
 
+### [Regret In Your Tears Lyrics – Nicki Minaj](http://catchylyrics.net/2017/03/regret-in-your-tears-lyrics/)
+![Regret In Your Tears](http://catchylyrics.net/wp-content/uploads/2017/03/regret-in-your-tears-lyrics.jpg)
+
+Regret In Your Tears Lyrics: One of the latest 2017’s English hip-hop and rap song lyrics
+songs lyrics that is sung by Nicki Minaj. Regret… [Read More..]
+
+## [page8]()
