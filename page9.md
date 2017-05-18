@@ -42,3 +42,20 @@ This song is sung by Mukesh Chand [Read More…]
 Jaane Kahan Gaye Woh Din Lyrics: The best heart touching old song lyrics from the movie Mera Naam Joker
 (1970) which is sung by Mukesh. [Read More…]
 
+### [Yeh Mera Deewanapan Hai Lyrics – Mukesh – Yahudi (1958)](http://catchylyrics.net/2017/03/yeh-mera-deewanapan-lyrics/)
+![Yeh Mera Deewanapan Hai](http://catchylyrics.net/wp-content/uploads/2017/03/yeh-mera-dewana-300x150.jpg)
+
+Yeh Mera Deewanapan Hai Lyrics: The best old romantic song lyrics from the movie Yahudi (1958)
+This song is sung by super singer Mukesh and [Read More…]
+
+### [Jis Gali Mein Tera Ghar Na Ho Balma Lyrics – Mukesh – Kati Patang](http://catchylyrics.net/2017/03/jis-gali-mein-tera-ghar-lyrics/)
+![Jis Gali Mein Tera Ghar Na Ho Balma](http://catchylyrics.net/wp-content/uploads/2017/03/Jis-gali-tera-ghar-na-ho-lyrics-300x150.jpg)
+
+Jis Gali Mein Tera Ghar Na Ho Balma Lyrics: One of the heart touching old song lyrics from the movie Kati Patang (1971)
+This song [Read More…]
+
+### [Maine Tere Liye Hi Lyrics – Mukesh – Anand – Rajesh Khanna](http://catchylyrics.net/2017/03/maine-tere-liye-hi-lyrics/)
+![Maine Tere Liye Hi](http://catchylyrics.net/wp-content/uploads/2017/03/main-tere-liye-300x150.jpg)
+
+Maine Tere Liye Hi Lyrics: One of the best old unconditional love song lyrics from the movie Anand (1971)
+This song is sung by amazing [Read More…]
