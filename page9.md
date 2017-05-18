@@ -18,3 +18,27 @@ guys from the movie Phool Aur Kaante (1991). This song [Read More…]
 Maine Pyaar Tumhee Se Kiya Hai Lyrics: One of the best romantic song lyrics from the movie Phool Aur Kaante
 (1991) that is sung by [Read More…]
 
+### [Tip Tip Barsa Paani Lyrics – Mohra – Alka Yagnik & Udit Narayan](http://catchylyrics.net/2017/03/tip-tip-barsa-paani-lyrics/)
+![Tip Tip Barsa Paani](http://catchylyrics.net/wp-content/uploads/2017/03/Tip-Tip-Barsa-Paani-lyrics-300x150.jpg)
+
+Tip Tip Barsa Paani Lyrics: The great romantic old song lyrics from the movie Mohra (1994)
+which is sung by Alka Yagnik & Udit Narayan. [Read More…]
+
+### [Ek Bewafa Hai Lyrics – Bewafaa (2005) – Sonu Nigam](http://catchylyrics.net/2017/03/ek-bewafa-hai-lyrics/)
+![Ek Bewafa Hai](http://catchylyrics.net/wp-content/uploads/2017/03/Ek-bewafa-hai-lyrics-300x150.jpg)
+
+Ek Bewafa Hai Lyrics: One of the best sad heart touching song lyrics from the movie Bewafaa (2005).
+This heartbroken song is sung by Sonu [Read More…]
+
+### [Chal Akela Chal Akela]( Lyrics – Mukesh – Sambandh (1969)](http://catchylyrics.net/2017/03/chal-akela-chal-akela-lyrics/)
+![Chal Akela Chal Akela](http://catchylyrics.net/wp-content/uploads/2017/03/chal-akela-lyrics-300x150.jpg)
+
+Chal Akela Chal Akela Lyrics: The awesome truth of life old song lyrics from the movie Sambandh (1969)
+This song is sung by Mukesh Chand [Read More…]
+
+### [Jaane Kahan Gaye Woh Din Lyrics – Mera Naam Joker – Mukesh](http://catchylyrics.net/2017/03/jaane-kahan-gaye-woh-din-lyrics/)
+![Jaane Kahan Gaye Woh Di](http://catchylyrics.net/wp-content/uploads/2017/03/jane-kaha-gaye-woh-din-300x150.jpg)
+
+Jaane Kahan Gaye Woh Din Lyrics: The best heart touching old song lyrics from the movie Mera Naam Joker
+(1970) which is sung by Mukesh. [Read More…]
+
