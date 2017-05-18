@@ -11,3 +11,10 @@ This song is sung by Coldplay [Read More…]
 
 Jise Dekh Mera Dil Dhadka Lyrics: The best romantic song lyrics for the younger college
 guys from the movie Phool Aur Kaante (1991). This song [Read More…]
+
+### [Maine Pyaar Tumhee Se Kiya Hai Lyrics – Kumar Sanu & Anuradha Paudwal](http://catchylyrics.net/2017/03/maine-pyaar-tumhee-se-kiya-hai-lyrics/)
+![Maine Pyaar Tumhee Se Kiya](http://catchylyrics.net/wp-content/uploads/2017/03/Maine-Pyar-Tumhi-Se-Kiya-Hai-Lyrics-300x150.jpg)
+
+Maine Pyaar Tumhee Se Kiya Hai Lyrics: One of the best romantic song lyrics from the movie Phool Aur Kaante
+(1991) that is sung by [Read More…]
+
